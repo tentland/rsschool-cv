@@ -1,4 +1,4 @@
-Julia Tentler
+Julia Tentler#
 tel:+9115630160
 email: aeroplanizzle@gmail.com
 Discord: Julia(@tentland)
